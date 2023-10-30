@@ -5,5 +5,6 @@
 -  i block freely. no i dont owe you a reason.
 -  feel free to w2i, i most likely am in party chat w friends. :)
 - --------------------------------------------------------
-- i like scp, undertale, fnaf, pokemon, splatoon, tf2, madcom, sonic + more
+- i like scp, undertale, fnaf, pokemon, splatoon, tf2, madcom, sonic, earthbound
+- yakuza, metal gear solid + more
 
