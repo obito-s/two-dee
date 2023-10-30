@@ -6,5 +6,5 @@
 -  im most likely off-tab so whisp me to int. i dont talk much, sorry :)
 - --------------------------------------------------------
 - i like scp, undertale, deltarune, fnaf, pokemon, splatoon, tf2,
-- madcom, sonic, earthbound, yakuza, metal gear solid + more
+- madcom, sonic, earthbound/mother, yakuza, metal gear solid + more
 
