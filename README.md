@@ -1,5 +1,5 @@
--  jackie / poppy . 22 . he/it
--  3.21.23 ♥ i love you <3
+-  jackie / poppy . you can also call me whoever im playing as
+-  22 . he/it . 3/21/23 ♥ i love you <3
 - --------------------------------------------------------
 -  i dont have a specific dni just the basic criteria.
 -  i block freely. no i dont owe you a reason.
