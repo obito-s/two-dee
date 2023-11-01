@@ -5,6 +5,6 @@
 -  i block freely. no i dont owe you a reason.
 -  im most likely off-tab so whisp me to int. i dont talk much, sorry :)
 - --------------------------------------------------------
-- i like scp, undertale, deltarune, fnaf, roblox, madcom, tf2, portal, the stanley parable,
+- i like scp, undertale, deltarune, fnaf, roblox, madcom, tf2, portal, law of talos,
 - splatoon, sonic, earthbound/mother, yakuza, metal gear solid, pokemon + lots more
 
