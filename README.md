@@ -4,6 +4,7 @@
 -  i dont have a specific dni just the basic criteria.
 -  i block freely. no i dont owe you a reason.
 -  im most likely off-tab so whisp me to int. i dont talk much, sorry :)
+-  i only discuss things im legally diagnosed with sooo i dont owe you anything <3
 - --------------------------------------------------------
 - i like scp, undertale, deltarune, fnaf, roblox, madcom, tf2, portal, castle of nations,
 - splatoon, sonic, earthbound/mother, yakuza, metal gear solid, pokemon + lots more
