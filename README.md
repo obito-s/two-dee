@@ -9,6 +9,6 @@
 - i like scp, undertale, fnaf, minecraft, roblox, madcom, tf2, portal, castle of nations, law of talos, endzone,
 - splatoon, sonic, earthbound/mother, yakuza, metal gear solid, pokemon + lots more
 
- ![pirate2](https://github.com/two-dee/two-dee/assets/145892647/a5512bf9-9ccf-4888-8ff4-7d4ee698ae94)
+ ![pirateblinkgirl-light_nml](https://github.com/two-dee/two-dee/assets/145892647/de8c70dd-1862-4388-973f-eea14f9e57d4)
 
 
