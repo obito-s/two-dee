@@ -10,5 +10,4 @@
 - splatoon, sonic, earthbound/mother, yakuza, metal gear solid, pokemon, pirates, fairies + lots more
 
 
-![Violin](https://github.com/two-dee/two-dee/assets/145892647/e681d6d7-eda0-493e-a656-07741f5f08f4) ![flappingfairy](https://github.com/two-dee/two-dee/assets/145892647/afc30c90-4fb6-40fd-9058-f2de50e6dd29)
-
+![KatViolin](https://github.com/two-dee/two-dee/assets/145892647/66a3fa03-661e-4f84-b50a-2a7d026a6b87)
