@@ -1,4 +1,4 @@
--  jackie / poppy / whoever im playing as
+-  jackie / karl
 -  22 . he/it . 3/21/23 ♥ i love you <3
 - --------------------------------------------------------
 -  i dont have a specific dni just the basic criteria and endogenic systems + dream supporters dni.
