@@ -6,6 +6,6 @@
 -  im most likely off-tab so whisp me to int. i dont talk much, sorry :)
 -  i only discuss things im legally diagnosed with sooo i dont owe you anything <3
 - --------------------------------------------------------
-- i like scp, undertale, deltarune, fnaf, minecraft, roblox, madcom, tf2, portal, castle of nations,
+- i like scp, undertale, fnaf, minecraft, roblox, madcom, tf2, portal, castle of nations, law of talos, endzone,
 - splatoon, sonic, earthbound/mother, yakuza, metal gear solid, pokemon + lots more
 
