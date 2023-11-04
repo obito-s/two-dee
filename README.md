@@ -10,5 +10,3 @@
 - splatoon, sonic, earthbound/mother, yakuza, metal gear solid, pokemon + lots more
 
  ![pirateblinkgirl-light_nml](https://github.com/two-dee/two-dee/assets/145892647/de8c70dd-1862-4388-973f-eea14f9e57d4)
-
-
