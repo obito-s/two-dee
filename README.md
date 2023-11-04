@@ -7,7 +7,8 @@
 -  i am legally diagnosed so idgaf if you fakeclaim <3
 - --------------------------------------------------------
 - i like scp, undertale, fnaf, minecraft, roblox, madcom, tf2, portal, castle of nations, law of talos, endzone,
-- splatoon, sonic, earthbound/mother, yakuza, metal gear solid, pokemon + lots more
+- splatoon, sonic, earthbound/mother, yakuza, metal gear solid, pokemon, pirates, fairies + lots more
 
 
-![Violin](https://github.com/two-dee/two-dee/assets/145892647/e681d6d7-eda0-493e-a656-07741f5f08f4)
+![Violin](https://github.com/two-dee/two-dee/assets/145892647/e681d6d7-eda0-493e-a656-07741f5f08f4) ![flappingfairy](https://github.com/two-dee/two-dee/assets/145892647/afc30c90-4fb6-40fd-9058-f2de50e6dd29)
+
