@@ -1,4 +1,4 @@
--  jackie / karl
+![](https://github.com/two-dee/two-dee/assets/145892647/b2037391-05aa-4fa5-9aae-3a6c9d599ceb) jackie / karl
 -  22 . he/it . 3/21/23 ♥ i love you <3
 - --------------------------------------------------------
 -  i dont have a specific dni just the basic criteria and endogenic systems + dream supporters dni.
@@ -9,5 +9,5 @@
 - i like scp, undertale, fnaf, minecraft, roblox, madcom, tf2, portal, castle of nations, law of talos, endzone,
 - splatoon, sonic, earthbound/mother, yakuza, metal gear solid, pokemon + lots more
 
- ![pirateblinkgirl-light_nml](https://github.com/two-dee/two-dee/assets/145892647/de8c70dd-1862-4388-973f-eea14f9e57d4) ![anicrow](https://github.com/two-dee/two-dee/assets/145892647/a291f959-6c2d-4365-86ff-77bf38d3c302)
+ ![pirateblinkgirl-light_nml](https://github.com/two-dee/two-dee/assets/145892647/de8c70dd-1862-4388-973f-eea14f9e57d4) 
 
