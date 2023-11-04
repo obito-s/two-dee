@@ -1,7 +1,7 @@
 -  jackie / poppy / whoever im playing as
 -  22 . he/it . 3/21/23 ♥ i love you <3
 - --------------------------------------------------------
--  i dont have a specific dni just the basic criteria and endogenic systems + dream supports dni.
+-  i dont have a specific dni just the basic criteria and endogenic systems + dream supporters dni.
 -  i block freely. no i dont owe you a reason.
 -  im most likely off-tab so whisp me to int. i dont talk much, sorry :)
 -  i only discuss things im legally diagnosed with sooo i dont owe you anything <3
