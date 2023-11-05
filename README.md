@@ -1,7 +1,7 @@
 ![](https://github.com/two-dee/two-dee/assets/145892647/b2037391-05aa-4fa5-9aae-3a6c9d599ceb) jackie / karl
 -  22 . he/it . 3/21/23
 - --------------------------------------------------------
--  i dont have a specific dni just the basic criteria, endogenic systems, dream supporters, underlust fans and 2doc shippers dni.
+-  i dont have a specific dni just the basic criteria, endogenic systems, dream supporters dni.
 -  i block freely. no i dont owe you a reason. ^_^
 -  im most likely off-tab so whisp me to int but i dont talk to randoms much.
 -  i am legally diagnosed so idgaf if you fakeclaim <3
