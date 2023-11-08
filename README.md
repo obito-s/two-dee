@@ -4,8 +4,7 @@
 -  i dont have a specific dni just the basic criteria, endogenic systems, dream supporters dni.
 -  i block freely. no i dont owe you a reason. ^_^
 -  im most likely off-tab so whisp me to int but i dont talk to randoms much.
-  
--  i am legally diagnosed so idgaf if you fakeclaim <3 its so funny
+-  i am legally diagnosed so idgaf if you fakeclaim <3 im not gonna scan my documents for you
 - --------------------------------------------------------
 - i like scp, fnaf, minecraft, roblox, madcom, tf2, portal, castle of nations, law of talos, endzone,
 - splatoon, sonic, earthbound/mother, yakuza, metal gear solid, pokemon, various flash animation + lots more
