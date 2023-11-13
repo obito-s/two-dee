@@ -9,6 +9,3 @@
 - i like scp, fnaf, minecraft, roblox, madcom, tf2, portal, castle of nations, law of talos, endzone,
 - splatoon, sonic, earthbound/mother, yakuza, metal gear solid, pokemon, various flash animation + lots more
 - i also absolutely love music i have no genre preference but i listen to a lot of rock, experimental, and classical music :)
-
-
-![A_Violin2](https://github.com/two-dee/two-dee/assets/145892647/0f49c16f-e76d-496c-ba63-2f73a6db7304)
