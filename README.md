@@ -2,7 +2,7 @@
 -  22 . he/it . 3/21/23
 - --------------------------------------------------------
 -  i dont have a specific dni just the basic criteria, endogenic systems dni, dream supporters dni.
--  i block freely, i dont owe you a reason. : ) 
+-  i block freely, i dont owe you a reason. : ) in most cases we either dont agree on smth or i dont wanna see the convo.
 -  im most likely off-tab so whisp me to int but i dont talk to randoms much.
 -  i am legally diagnosed so idgaf if you fakeclaim <3 im not gonna scan my documents for you
 - --------------------------------------------------------
