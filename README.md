@@ -1,8 +1,8 @@
 ![](https://github.com/two-dee/two-dee/assets/145892647/b2037391-05aa-4fa5-9aae-3a6c9d599ceb) jackie / poppy
 -  22 . he/it/she/they . ♥ 3/21/23 ♥
 - --------------------------------------------------------
--  i dont have a specific dni just the basic criteria, endogenic systems dni, dream supporters dni.
--  i block freely, i dont owe you a reason. : ) in most cases we either dont agree on smth or i dont wanna see the convo.
+-  i dont have a mega specific dni just the basic criteria, endogenic systems, and dream supporters dni.
+-  i block freely, i dont owe you a reason. in most cases we either dont agree on smth or i dont wanna see the convo.
 -  im most likely off-tab so whisp me to int but i dont talk to randoms much.
 -  i am legally diagnosed so idgaf if you fakeclaim <3 im not gonna scan my documents for you
 - --------------------------------------------------------
