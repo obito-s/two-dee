@@ -1,5 +1,5 @@
 ![](https://github.com/two-dee/two-dee/assets/145892647/b2037391-05aa-4fa5-9aae-3a6c9d599ceb) jackie / poppy
--  22 . he/it . 3/21/23
+-  22 . he/it/she/they . 3/21/23
 - --------------------------------------------------------
 -  i dont have a specific dni just the basic criteria, endogenic systems dni, dream supporters dni.
 -  i block freely, i dont owe you a reason. : ) in most cases we either dont agree on smth or i dont wanna see the convo.
