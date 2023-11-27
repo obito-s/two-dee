@@ -1,4 +1,4 @@
-![](https://github.com/two-dee/two-dee/assets/145892647/b2037391-05aa-4fa5-9aae-3a6c9d599ceb) jackie / poppy
+![](https://github.com/two-dee/two-dee/assets/145892647/b2037391-05aa-4fa5-9aae-3a6c9d599ceb) jackie / poppy / whatever horse im playing as
 -  22 . he/it/she/they . ♥ 3/21/23 ♥
 - --------------------------------------------------------
 -  i dont have a mega specific dni just the basic criteria, endogenic systems, and dream supporters dni.
