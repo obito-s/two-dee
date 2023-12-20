@@ -1,4 +1,4 @@
-![](https://i.imgur.com/xZCff1M.gif) jackie / poppy ![](https://i.imgur.com/veED69C.gif)
+![](https://i.imgur.com/EjehTUH.gif) jackie / poppy
 -  22 . he/it/she/they . ♥ 3/21/23 ♥
 - --------------------------------------------------------
 -  i dont have a mega specific dni just the basic criteria, endogenic systems, and dream supporters dni.
