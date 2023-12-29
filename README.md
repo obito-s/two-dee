@@ -4,6 +4,7 @@
 -  i dont have a mega specific dni just the basic criteria, endogenic systems, and dream supporters dni.
 -  i block freely, i dont owe you a reason. in most cases we either dont agree on smth or i dont wanna see the convo.
 -  i have very poor memory so be patient ig? if i dont remember u im sorry </3 just chilling on this game idk
+-  im usually off-tab and dont talk to ppl besides friends so dont take it personally if i dont reply
 -  i am legally diagnosed so idgaf if you fakeclaim <3 im not gonna scan my documents for you
 - --------------------------------------------------------
 - i like scp, marvel, fnaf, soulsborne, madcom, tf2, portal, castle of nations, law of talos, endzone,
