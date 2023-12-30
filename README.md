@@ -1,5 +1,5 @@
 ![](https://i.imgur.com/2KeOG7t.gif)  jackie / poppy / dee
--  22 . he/it/she/they . ♥ 3/21/23 ♥
+-  22 . he / any pronouns . ♥ 3/21/23 ♥
 - --------------------------------------------------------
 -  i dont have a mega specific dni just the basic criteria, endogenic systems, and dream supporters dni.
 -  i block freely, i dont owe you a reason. in most cases we either dont agree on smth or i dont wanna see the convo.
