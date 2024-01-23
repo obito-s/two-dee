@@ -1,5 +1,4 @@
-![](https://i.imgur.com/2KeOG7t.gif)  jackie / tobi
--  22 . he / him . ♡ 3/21/23 ♡
+![](https://i.imgur.com/2KeOG7t.gif)  jackie / tobi . 22 . he / him . ♡ 3/21/23 ♡
 - --------------------------------------------------------
 -  i dont have a mega specific dni just the basic criteria, endogenic systems, and dream supporters dni.
 -  i block freely, i dont owe you a reason. in most cases i just dont like you or your conversation.
